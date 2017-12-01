@@ -1,2 +1,2 @@
 # MTM6330-MIDTERM
-My midterm
+Safia Jama Section 3
